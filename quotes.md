@@ -10,7 +10,7 @@
 
 ---
 
-> A desire for a life of freedom in a world that is severely rigid can in turn lead to great pain.
+> A desire for a life of freedom in a world that is drastically rigid can lead to severe pain.
 
 ---
 
@@ -30,7 +30,7 @@
 
 ---
 
-> The purpose of a so-called "messiah" is to shape the denial of God, often inadvertently resulting with some sort of religion.
+> The purpose of a so-called "messiah" is to shape the denial of God, often inadvertently resulting with some sort of organized religion.
 
 ---
 
