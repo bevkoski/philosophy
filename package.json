@@ -1,0 +1,13 @@
+{
+  "name": "philosophy",
+  "description": "A collection of original philosophical quotes packed as HTML slides",
+  "repository": {
+    "type": "git",
+    "url": "git://github.com/bevkoski/philosophy.git"
+  },
+  "keywords": [
+    "philosophy",
+    "reveal",
+    "slides"
+  ]
+}
