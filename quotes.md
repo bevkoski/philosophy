@@ -43,3 +43,7 @@
 ---
 
 > The residuals of God's movements have created stable life forms such as planets, plants and animals.
+
+---
+
+> Every action we take is motivated by our sheer idealisation of nothingness.
