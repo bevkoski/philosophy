@@ -30,7 +30,7 @@
 
 ---
 
-> The purpose of a so-called "messiah" is to shape the denial of God, often inadvertently resulting with some sort of organized religion.
+> The purpose of a so-called "messiah" is to shape the denial of God, often inadvertently resulting with some sort of organized religion or disorganized chaos.
 
 ---
 
