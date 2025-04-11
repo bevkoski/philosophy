@@ -47,3 +47,7 @@
 ---
 
 > Every action we take is motivated by our sheer idealisation of nothingness.
+
+---
+
+> Life is essentially a process of giving shape to the pain trapped inside of us.
