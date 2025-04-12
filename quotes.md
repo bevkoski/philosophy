@@ -51,3 +51,7 @@
 ---
 
 > Life is essentially a process of giving shape to the pain trapped inside of us.
+
+---
+
+> Most of humanity's efforts are based on recycling of past mistakes.
