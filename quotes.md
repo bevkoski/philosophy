@@ -54,4 +54,4 @@
 
 ---
 
-> Most of humanity's efforts are based on recycling of past mistakes.
+> Touchpoints between God and humanity are always found in ambiguity.
