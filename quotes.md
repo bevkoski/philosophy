@@ -50,7 +50,7 @@
 
 ---
 
-> Life is essentially a process of giving shape to the pain trapped inside of us.
+> Life is essentially a process of giving shape to the pain trapped inside each and every one of us.
 
 ---
 
