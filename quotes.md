@@ -55,3 +55,7 @@
 ---
 
 > Touchpoints between God and humanity are always found in ambiguity.
+
+---
+
+> Since most of our daily activities relate to some sort of physical or psychological discomfort, life can be seen as sacred torture.
