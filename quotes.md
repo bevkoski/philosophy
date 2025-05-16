@@ -59,3 +59,7 @@
 ---
 
 > Since most of our daily activities relate to some sort of physical or psychological discomfort, life can be seen as sacred torture.
+
+---
+
+> Every bond in this universe can be described through the relation of the guide and the guided.
